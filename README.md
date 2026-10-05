@@ -1,2 +1,2 @@
 just an ordinary person
-pursuing first year btech
+pursuing first year btec
